@@ -1,10 +1,10 @@
-# Grammarly Discount Coupon May 2025: (30% OFF Legit)
+# Grammarly Discount Coupon June 2025: (30% OFF Legit)
 
 Looking for a simple way to sharpen your writing and save a bit of cash? The **Grammarly discount** might be just what you need. In this article, we’ll break down exactly what this discount is, how you can grab it, and why it’s a handy option if you're serious about improving your writing game.
 
 From unlocking premium tools to cutting down subscription costs, this discount is honestly a nice little perk for anyone who writes regularly—whether you’re working on assignments, reports, or even creative pieces. Keep reading to find out how to claim your coupon, the pricing details, and a few things you should keep in mind before jumping in.
 
-## 30% Grammarly Discount May 2025
+## 30% Grammarly Discount June 2025
 
 Here’s the good news: Grammarly is offering a **30% discount** on Premium plans right now. If you’re a blogger, writer, editor, or even just someone who wants to sound a bit more polished in emails, it’s worth a look. This offer won’t stick around forever, so if you’ve been thinking about upgrading, now’s a great time to act. ✍️
 
